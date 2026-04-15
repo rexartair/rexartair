@@ -20,5 +20,3 @@ play pathologic it will be 4 dollars during the summer sale or something. idk wh
 does anyone want to make me a daniil danovsky or ogata hyakunosuke skin 💖💖  i dont want to. you get nothing in return
 
 </p>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1u1x937jtt5g1ytou7pq9mt7a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5b54b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
