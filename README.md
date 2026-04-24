@@ -17,8 +17,4 @@
 
 play pathologic it will be 4 dollars during the summer sale or something. idk when else it goes on sale
 
-does anyone want to make me a daniil danovsky or ogata hyakunosuke skin 💖💖  i dont want to. you get nothing in return
-
-^ who is whispering me i keep missing them LMFAO
-
 </p>
